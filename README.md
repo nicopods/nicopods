@@ -1,2 +1,2 @@
-- Nicopods Studio
+- Nicopods Studio | @tinycaster's son
 🐖
